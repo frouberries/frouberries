@@ -4,6 +4,4 @@
 <div align="left"> ㅤ </div>
 <p align="left">
 </p>
-WIP!!
-</p>
-${\textsf{\color{#B8B84A}fruit or fein}}$ <br>
+
