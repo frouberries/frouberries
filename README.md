@@ -3,33 +3,29 @@
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
 <p align="left">
-‎fruitㅤㅤㅤㅤorㅤㅤㅤㅤ‎fein    ‎
+‎fruitㅤㅤorㅤㅤ‎fein    ‎
 <br>
-he ⊹ hxmㅤㅤㅤㅤ♡ㅤㅤㅤminor
+he ⊹ hxmㅤㅤ♡ㅤㅤminor
 <br>
-𓏵ㅤㅤ>⩊<ㅤfruitberries & feinberg fan
+𓏵ㅤfruitberries & feinberg fan >⩊<
 
 <br>
 ‎<br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟢
+ㅤㅤㅤㅤ⟢
 <br>
 <br>
 revenge is bad because it only leads to ruin, <br>
 ㅤㅤ⸝⸝ㅤmy heart is already dead, dead <br>
-ㅤㅤㅤㅤㅤㅤdead, dead ☆
-<br>
+ㅤㅤㅤㅤdead, dead ☆
 <br>
 <br>
 <br>
 
-𝄞ㅤ‎ㅤ𓏼ㅤ‎ㅤㅤ‎[001​](https://rentry.co/feinbergmc) ︵︵ㅤㅤ‎ㅤ♯ㅤ‎[002](https://rentry.co/somethingrotten)
+𝄞ㅤ‎ㅤ𓏼ㅤ‎[001​](https://rentry.co/feinbergmc) ㅤ♯ㅤ‎[002](https://rentry.co/somethingrotten)
+<br>
+‎⋮ㅤㅤ [​003](https://wemmbu.atabook.org) ✦ㅤㅤ⌗ [004](https://rentry.co/feinbergs)
+<br>
+・・・・・ㅤ[005](https://rentry.co/raindoll) ◞ ♫
 <br>
 <br>
-‎⋮ㅤㅤ [​003](https://wemmbu.atabook.org) ✦ㅤㅤㅤ︵︵ㅤ⌗ [004](https://rentry.co/feinbergs)
-<br>
-<br>
-・・・・・ㅤ︵︵ㅤ[005](https://rentry.co/raindoll) ◞ㅤㅤㅤㅤ ♫
-<br>
-<br>
-<br>
-ac :: @KL_Casynia on xitter
+ac :: KL_Casynia
